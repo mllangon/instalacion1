@@ -7,6 +7,3 @@ flsd
 acsoa
 sxkja
 djaksdk
-ddgfiw
-joiwof
-sdkfbak
